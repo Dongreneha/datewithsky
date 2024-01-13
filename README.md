@@ -1,3 +1,3 @@
-✨[doyouwannagooutwithme.com](http://doyouwannagooutwithme.com) 
+✨Lets go on a date
 
-A website to invite your lover for a date 🥰
+A website to invite Akash for a date 🥰
